@@ -6,5 +6,7 @@ This is a document with all the Frequently Asked Questions related to the AYM 20
 
 2) We have two nominations who did not attend the regional training.<br/>A) The procedure is same as question one but for both participants.
 
+3) How does a participant get reimbursed for all the expenses they incur?<br/>A) The participant will fill a reimbursement form that will be distributed during the meeting and attach all required reciepts to the form. Expenses that do not have a reciept will not be considered.
 
+4) What about local conveyance?<br/>A) Conveyances for local expenses like food or travel will be reimbursed as well if the participants have the required reciepts.
 
