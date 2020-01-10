@@ -10,3 +10,4 @@ This is a document with all the Frequently Asked Questions related to the AYM 20
 
 4) What about local conveyance?<br/>A) Conveyances for local expenses like food or travel will be reimbursed as well if the participants have the required reciepts.
 
+5) How many participants can we send?<br/>A) Affiliated chapters can send 2 participants. Non-affiliated chapters can send one participant.
